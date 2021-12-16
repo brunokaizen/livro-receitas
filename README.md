@@ -6,4 +6,5 @@ Aqui vou colocar várias receitas caseiras para vocês
 - frango
 - frituras
 - massas
+- pastel
 - 
